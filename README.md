@@ -21,6 +21,6 @@ Je suis passionné par la cybersécurité et le développement web, avec une exp
 
 Vous pouvez me contacter via discord **usrzeus**
 
-N'hésitez pas à explorer mes repos pour découvrir mes projets récents.
+N'hésitez pas à explorer mes repos pour découvrir mes projets récents, laisser des étoiles 🚀
 
 Merci d'avoir visité mon profil! ✅
